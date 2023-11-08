@@ -1,1 +1,0 @@
-# Illuminageniess.com
